@@ -45,7 +45,6 @@ My dream is to work in the field of **Interaction Design**, where technology mee
 
 - **LinkedIn**: [My LinkedIn profile](www.linkedin.com/in/nina-lucconavei)
 
----
 
-✨ _Learning, creating, and sharing!_
+
 
